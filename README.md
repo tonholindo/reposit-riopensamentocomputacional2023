@@ -1,1 +1,1 @@
-# reposit-riopensamentocomputacional2023
+# reposit-rioprova3trim2d
